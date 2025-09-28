@@ -2,7 +2,7 @@
 - 👀 I’m interested in code, music, science & math
 - 🌱 I’m currently learning i don't want to say...
 - 💞️ I’m looking to collaborate on anything :)
-- 📫 find me on dicord, my username is @user_beyondrange. 
+- 📫 find me on dicord, my username is @nerunerunerun3
 - 😄 Pronouns: chemical/bond
 - ⚡ Fun fact: my favorite fruits aren't specific, they're whatever's in season right now.
 
